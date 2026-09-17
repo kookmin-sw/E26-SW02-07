@@ -2,7 +2,7 @@
 
 ## 🎯 팀 슬로건
 
-> 
+> Make the Error, Solve the Error
 
 ## 🖼️ 팀 포스터
 
